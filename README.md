@@ -1,1 +1,1 @@
-## [👋 Hi there](https://channinghsu.github.io/about/)
+## [👋 Hi there](https://channinghsu.com/about/)
